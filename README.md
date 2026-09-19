@@ -1,3 +1,5 @@
+[![Discord Presence](https://lanyard.cnrad.dev/api/774008900780425287)](https://discord.com/users/774008900780425287)
+
 <img src="https://file.garden/aI99Y_92ODronQq5/Untitled587_20260722163821.png" width="290">
 <img src="https://file.garden/aI99Y_92ODronQq5/Untitled572_0000-04-15_20260722164008.png" width="290">
 
